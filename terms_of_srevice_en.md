@@ -32,5 +32,3 @@ These terms and conditions are effective as of 2023-05-30
 **Contact Us**
 
 If you have any questions or suggestions about our Terms and Conditions, do not hesitate to contact us at madeirapadel2022@gmail.com.
-
-This Terms 
