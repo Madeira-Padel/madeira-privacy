@@ -27,7 +27,7 @@ At some point, we may wish to update the app. The app is currently available on 
 
 We may update our Terms and Conditions from time to time. Thus, you are advised to review this page periodically for any changes. We will notify you of any changes by posting the new Terms and Conditions on this page.
 
-These terms and conditions are effective as of 2023-05-30
+These terms and conditions are effective as of 2022-05-30
 
 **Contact Us**
 
